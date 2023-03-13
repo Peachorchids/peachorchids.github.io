@@ -13,7 +13,7 @@ I love technology and I am writing this page to talk about myself and my desire 
 My name is Mercy Michael Ihemedo, I was born on 5th August 1990. I am single and i run my own business.
 
 
-I grew up loving computer technology so much that i want to build a carreer on it. I developed the interest from watching movies about tech gurus and anything technology. I love anything software, cyber security, artificial intelligence etc.
+I grew up loving computer technology so much that i want to build a carreer on it. I developed the interest from watching movies about tech gurus and anything technology when I was very young. I love anything software, cyber security, artificial intelligence etc.
 
 
 I like brainstorming ideas and finding solutions somehow i got that skills from my teenage years because I am the first daughter in my family and I took up responsibility of providing and assisting my parents with my younger ones very much earlier in life.
