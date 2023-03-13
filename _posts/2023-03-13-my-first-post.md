@@ -13,8 +13,8 @@ This post is a summary of the things i have learned in this course. I am so happ
 
 1. I learned how to use **Markdown basic syntax code**
 2. I created my first ever github account
-3. I learned how to customize imsge, about page,menu etc
-4. I created a blog post
+3. I learned how to customize imsge, about page, menu etc
+4. I created a blog post!
 
 
 > I'm very excited and so proud of myself. I hope to learn more in the future.
