@@ -22,7 +22,7 @@ I like brainstorming ideas and finding solutions. Somehow I got that skills from
 Most of the IT courses I tried to enroll on costs an arm and a leg so i was not buoyant enough to go for it. I wanted to start somewhere that can help me learn while still making a living, that was how i started learning how to create websites with WordPress. I did more of self learning online, using youtube videos and research materials I got off the internet. That was how I started my own business. I source for product, import, create sales pages and promote on social medias.
 
 
-Unfortunately I have not been able to fulfill that dream yet because my life has been a whole lots of ups and downs. But i have not given up on that. It has not really been an easy journey but I am grateful.
+Unfortunately I have not been able to fulfill that dream yet because my life has been a whole lots of ups and downs. But i have not given up on that. It has not really been an easy journey, but I am grateful.
 
 
 I was intrigued and so excited when a friend told me about TEA and linked me up to your website. I really wish and hope i will be able to meet up to your criteria for selection. 
