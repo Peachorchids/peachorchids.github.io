@@ -11,7 +11,7 @@ Because I love technology and I am writing this page to talk about myself and my
 
 ### How
 
-The program is an online intensice course and I am available and ready to learn with the terms and conditions with it.
+The program is an online intensive course and I am available and ready to learn with the terms and conditions with it.
 
 ### What
 
