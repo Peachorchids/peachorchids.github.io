@@ -11,7 +11,7 @@ This post is a summary of the things i have learned in this course. I am so happ
 
 #### Below are some of the things I learned to do:
 
-1. I learned how to use **Markdown basic syntax code**
+1. I learned how to use **Markdown basic syntax code**.
 2. I created my first ever *GitHub account*
 3. I learned how to customize image, about page, menu etc on GitHub.
 4. ***I created a blog post!***
@@ -20,4 +20,4 @@ This post is a summary of the things i have learned in this course. I am so happ
 > I'm very excited and so proud of myself. 
 > 
 > I am more excited to learn more from Tech Experts Academy in the future.
->> I truly hope and wish my application will be favorably considered. Thank you so much sir im advance.
+>> I truly hope and wish my application will be favorably considered. Thank you so much sir in advance.
