@@ -3,6 +3,7 @@ layout: about
 title: About
 ---
 
-## About
+## Welcome to Mercy Michael Ihemedo's Page
 
-Hi, nice to meet you.
+### Why
+
