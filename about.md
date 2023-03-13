@@ -23,7 +23,7 @@ I was intrigued and so excited when a friend told me about TEA and linked me up 
 
 I learn very fast and i like brainstorming ideas. I truly hope and wish you can help me actualize this dream of becoming part of the IT industry. I truly love to be part of it. 
 
-> Thank you in advance sir/ma.
+> Thank you very much in advance sir/ma.
 
 ### How
 
