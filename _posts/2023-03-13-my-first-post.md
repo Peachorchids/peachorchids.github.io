@@ -15,7 +15,7 @@ This post is a summary of the things i have learned in this course. I am so happ
 2. I created my first ever *GitHub account*
 3. I learned how to customize image, about page, menu etc on GitHub.
 4. ***I created a blog post!***
-5. Thanks to this course I can navigate around GitHub backend and successfully build any website any time any day with little or no help. 
+5. Thanks to this course I can navigate around GitHub backend and successfully build any website any time any day.
 
 > I'm very excited and so proud of myself. 
 > 
