@@ -7,7 +7,7 @@ title: About
 
 ### Why
 
-Because I love technology and I am writing this page to talk about myself and my desire to be part of the IT industry.
+I love technology and I am writing this page to talk about myself and my desire to be part of the IT industry.
 
 ### How
 
