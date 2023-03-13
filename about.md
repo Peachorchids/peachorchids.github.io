@@ -16,7 +16,7 @@ My name is Mercy Michael Ihemedo, I was born on 5th August 1990. I am single and
 I grew up loving computer technology so much that i want to build a carreer on it. I developed the interest from watching movies about tech gurus and anything technology when I was very young. I love anything software, cyber security, artificial intelligence etc.
 
 
-I like brainstorming ideas and finding solutions somehow i got that skills from my teenage years because I am the first daughter in my family and I took up responsibility of providing and assisting my parents with my younger ones very much earlier in life.
+I like brainstorming ideas and finding solutions. Somehow I got that skills from my teenage years because I am the first daughter in my family and I took up responsibility of providing and assisting my parents with my younger ones very much earlier in life.
 
 
 Most of the IT courses I tried to enroll on costs an arm and a leg so i was not buoyant enough to go for it. I wanted to start somewhere that can help me learn while still making a living, that was how i started learning how to create websites with WordPress. I did more of self learning online, using youtube videos and research materials i gotnoff the internet. That was how i was able to started my own business. I source for product, import, create sales pages and promote on social medias.
