@@ -19,5 +19,5 @@ This post is a summary of the things i have learned in this course. I am so happ
 
 > I'm very excited and so proud of myself. 
 > 
-> I am more excited to learn more from TEA in the future.
+> I am more excited to learn more from Tech Experts Academy in the future.
 >> I truly hope and wish my application will be favorably considered. Thank you so much sir im advance.
