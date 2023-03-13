@@ -17,6 +17,6 @@ The program is an online intensive course and I am available and ready to learn 
 
 I am self driven. I learn very fast and i want to be trained by Tech Experts Academy 
 
-### Contacts
+### Contact
 
 You can reach me here. Email: switnpearl@gmail.com, mcymichy@gmail.com. Phone: +2348110869788
