@@ -40,7 +40,7 @@ The program is an online intensive course and I am available and ***ready*** to 
 
 ### What
 
-I am self driven. I learn very fast and i want to be trained by Tech Experts Academy on Cloud Solutions.
+I am self driven. I learn very fast and i want to be trained by Tech Experts Academy on **Cloud Solutions**.
 
 ### Contact
 
