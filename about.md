@@ -36,7 +36,7 @@ I learn very fast and i like brainstorming ideas. I truly hope and wish you can 
 
 ### How
 
-The program is an online intensive course and I am available and ***ready*** to learn with the terms and conditions associated with it. I will be grateful and happy to be trained by TEA. It will be an honor.
+I understood the training is an online intensive course and I am available and ***ready*** to learn with the terms and conditions associated with it. I will be grateful and happy to be trained by TEA. It will be an honor.
 
 ### What
 
