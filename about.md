@@ -44,4 +44,4 @@ I am self driven. I learn very fast and i want to be trained by Tech Experts Aca
 
 ### Contact
 
-You can reach me here. [Email] (switnpearl@gmail.com, mcymichy@gmail.com) [Phone] (+2348110869788)
+You can reach me here. [Email] <switnpearl@gmail.com, mcymichy@gmail.com> [Phone] (+2348110869788)
